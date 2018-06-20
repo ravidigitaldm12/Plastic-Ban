@@ -1,0 +1,2 @@
+# Plastic-Ban
+Maharashtra Government has banned the plastic due to pollution growing rapidly. The reason behind the ban of Plastic in Maharashtra are most because Food Vendors across the Maharashtrian cities is the main reason to pollute the city, how? Almost every Food Vendors use plastic Plates, Plastic bags and Spoons which affect the environment and increase pollution. Many of Indian snacks are served in a plastic dish and bags.                                SOURCE:-https://indiafoodnetwork.in/uncategorized/plastic-ban-has-maharashtra-got-its-ban-in-the-bag/
